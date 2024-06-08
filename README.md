@@ -26,13 +26,12 @@
 
 <h3><b><i>🏆 Github Statistics :</i></b></h3>
 
-<a href="https://github.com/ABIRxADRIYAN"><img title="trophy" src="https://github-profile-trophy.vercel.app/?username=MR-ERROR-707&theme=monokai"></a>
+<a href="https://github.com/MR-ERROR-707"><img title="trophy" src="https://github-profile-trophy.vercel.app/?username=MR-ERROR-707&theme=monokai"></a>
 
 
-![MR-ERROR-707 GitHub stats](https://github-readme-stats.vercel.app/api?username=Adriyan404&show_icons=true&theme=chartreuse-dark)  
+![MR-ERROR-707 GitHub stats](https://github-readme-stats.vercel.app/api?username=MR-ERROR-404&show_icons=true&theme=chartreuse-dark)  
 
 ![<img src="https://emoji.discord.st/emojis/768b108d-274f-4f44-a634-8477b16efce7.gif" width="25">
-
 
 &nbsp; 𝚆𝙴𝙻𝙲𝙾𝙼𝙴 𝚃𝙾 𝙼𝚈 𝙿𝚁𝙾𝙵𝙸𝙻𝙴&nbsp;
 
@@ -40,7 +39,7 @@
 
 </h3>
 
-[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Neuton&size=25&color=30FF40&background=000000&center=true&vCenter=true&width=360&height=60&lines=Hello+World%2C+I'm+MR-ERROR+Here+🤙;𝙸𝚃'𝚜+𝙽𝙾𝚃+𝙰+𝙹𝚄𝚂𝚃+𝙽𝙰𝙼𝙴+𝙱𝚁𝙾+🥱;𝙸𝚃'𝚜+𝙰+𝙱𝚁𝙰𝙽𝙳+🔥;Respect+𝐀𝐁𝐈𝐑𝐱𝐀𝐃𝐑𝐈𝐘𝐀𝐍+🥀;Today+I+Will+Tell+You+😇;Please+Follow+My+GitHub+🙏;Thanks+My+All+Friend+🤙+🥰;Love+From+Bangladesh🇧🇩)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Neuton&size=25&color=30FF40&background=000000&center=true&vCenter=true&width=360&height=60&lines=Hello+World%2C+I'm+MR-ERROR+Here+🤙;𝙸𝚃'𝚜+𝙽𝙾𝚃+𝙰+𝙹𝚄𝚂𝚃+𝙽𝙰𝙼𝙴+𝙱𝚁𝙾+🥱;𝙸𝚃'𝚜+𝙰+𝙱𝚁𝙰𝙽𝙳+🔥;Respect+MR-ERROR+🥀;Today+I+Will+Tell+You+😇;Please+Follow+My+GitHub+🙏;Thanks+My+All+Friend+🤙+🥰;Love+From+Bangladesh🇧🇩)](https://git.io/typing-svg)
 
 𝚅𝙸𝚂𝙸𝚃𝙾𝚁𝚂 𝙲𝙾𝚄𝙽𝚃
 
