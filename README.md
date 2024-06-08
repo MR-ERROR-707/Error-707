@@ -1,4 +1,4 @@
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&width=435&lines=𝐀𝐁𝐈𝐑𝐱𝐀𝐃𝐑𝐈𝐘𝐀𝐍+𝐀𝐁𝐈𝐑𝐱𝐀𝐃𝐑𝐈𝐘𝐀𝐍+𝐀𝐁𝐈𝐑𝐱𝐀𝐃𝐑𝐈𝐘𝐀𝐍a;MY+LOVE+ALLHA;KING+OFF+SEX%3A)+BRAND;FUCK+U+BBY;It's+A+ABIRxADRIYAN+BRAND" alt="Typing SVG" /></a>
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&width=435&lines=MR ERROR+MR ERROR+MR ERRORa;MY+LOVE+ALLHA;KING+OFF+SEX%3A)+BRAND;FUCK+U+BBY;It's+A+ABIRxADRIYAN+BRAND" alt="Typing SVG" /></a>
 <p align="center"><img src="https://img.shields.io/badge/MADE%20IN BANGLADESHI-SPAMMAR AND PROGRAMMER-green?colorA=%23ff0000&colorB=%23017e40&style=flat-square">
 
 <h3 align="center">
@@ -11,11 +11,11 @@
 
 </h3>
 
-[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Neuton&size=25&color=30FF40&background=000000&center=true&vCenter=true&width=360&height=60&lines=Hello+World%2C+I'm+PICCI-𝐀𝐁𝐈𝐑𝐱𝐀𝐃𝐑𝐈𝐘𝐀𝐍+Here+🤙;𝙸𝚃'𝚜+𝙽𝙾𝚃+𝙰+𝙹𝚄𝚂𝚃+𝙽𝙰𝙼𝙴+𝙱𝚁𝙾+🥱;𝙸𝚃'𝚜+𝙰+𝙱𝚁𝙰𝙽𝙳+🔥;Respect+𝐀𝐁𝐈𝐑𝐱𝐀𝐃𝐑𝐈𝐘𝐀𝐍+🥀;Today+I+Will+Tell+You+😇;Please+Follow+My+GitHub+🙏;Thanks+My+All+Friend+🤙+🥰;Love+From+Bangladesh🇧🇩)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Neuton&size=25&color=30FF40&background=000000&center=true&vCenter=true&width=360&height=60&lines=Hello+World%2C+I'm+MR-ERROR+Here+🤙;𝙸𝚃'𝚜+𝙽𝙾𝚃+𝙰+𝙹𝚄𝚂𝚃+𝙽𝙰𝙼𝙴+𝙱𝚁𝙾+🥱;𝙸𝚃'𝚜+𝙰+𝙱𝚁𝙰𝙽𝙳+🔥;Respect+𝐀𝐁𝐈𝐑𝐱𝐀𝐃𝐑𝐈𝐘𝐀𝐍+🥀;Today+I+Will+Tell+You+😇;Please+Follow+My+GitHub+🙏;Thanks+My+All+Friend+🤙+🥰;Love+From+Bangladesh🇧🇩)](https://git.io/typing-svg)
 
 𝚅𝙸𝚂𝙸𝚃𝙾𝚁𝚂 𝙲𝙾𝚄𝙽𝚃
 
-<img src="https://profile-counter.glitch.me/𝐀𝐁𝐈𝐑𝐱𝐀𝐃𝐑𝐈𝐘𝐀𝐍/count.svg" />
+<img src="https://profile-counter.glitch.me/MR-ERROR-707/count.svg" />
 
 </p>
 
@@ -26,48 +26,138 @@
 
 <h3><b><i>🏆 Github Statistics :</i></b></h3>
 
-<a href="https://github.com/ABIRxADRIYAN"><img title="trophy" src="https://github-profile-trophy.vercel.app/?username=ABIRxADRIYAN&theme=monokai"></a>
+<a href="https://github.com/ABIRxADRIYAN"><img title="trophy" src="https://github-profile-trophy.vercel.app/?username=MR-ERROR-707&theme=monokai"></a>
 
 
-![ABIRxADRIYAN's GitHub stats](https://github-readme-stats.vercel.app/api?username=Adriyan404&show_icons=true&theme=chartreuse-dark)  
+![MR-ERROR-707 GitHub stats](https://github-readme-stats.vercel.app/api?username=Adriyan404&show_icons=true&theme=chartreuse-dark)  
 
-![ABIRxADRIYAN GitHub Streak](https://github-readme-streak-stats.herokuapp.com/?user=Adriyan404&theme=radical)
+![<img src="https://emoji.discord.st/emojis/768b108d-274f-4f44-a634-8477b16efce7.gif" width="25">
+
+&nbsp; 𝚆𝙴𝙻𝙲𝙾𝙼𝙴 𝚃𝙾 𝙼𝚈 𝙿𝚁𝙾𝙵𝙸𝙻𝙴&nbsp;
+
+<img src="https://emoji.discord.st/emojis/768b108d-274f-4f44-a634-8477b16efce7.gif" width="25">
+
+</h3>
+
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Neuton&size=25&color=30FF40&background=000000&center=true&vCenter=true&width=360&height=60&lines=Hello+World%2C+I'm+MR-ERROR+Here+🤙;𝙸𝚃'𝚜+𝙽𝙾𝚃+𝙰+𝙹𝚄𝚂𝚃+𝙽𝙰𝙼𝙴+𝙱𝚁𝙾+🥱;𝙸𝚃'𝚜+𝙰+𝙱𝚁𝙰𝙽𝙳+🔥;Respect+𝐀𝐁𝐈𝐑𝐱𝐀𝐃𝐑𝐈𝐘𝐀𝐍+🥀;Today+I+Will+Tell+You+😇;Please+Follow+My+GitHub+🙏;Thanks+My+All+Friend+🤙+🥰;Love+From+Bangladesh🇧🇩)](https://git.io/typing-svg)
+
+𝚅𝙸𝚂𝙸𝚃𝙾𝚁𝚂 𝙲𝙾𝚄𝙽𝚃
+
+<img src="https://profile-counter.glitch.me/MR-ERROR-707/count.svg" />
+
+</p>
+
+- ![Alt text](https://github.com/MRVIVEK-CODER/MRVIVEK-CODER/raw/main/Developer.gif)
+
+<img src="https://i.pinimg.com/originals/77/ca/a3/77caa32884d735d439ade45ba37feaf2.gif" min-width="1500px" max-width="1500px" width="1500px" align="middle" alt="Computador iuriCode">
+
+
+<h3><b><i>🏆 Github Statistics :</i></b></h3>
+
+<a href="https://github.com/ABIRxADRIYAN"><img title="trophy" src="https://github-profile-trophy.vercel.app/?username=MR-ERROR-707&theme=monokai"></a>
+
+
+![MR-ERROR-707 GitHub stats](https://github-readme-stats.vercel.app/api?username=Adriyan404&show_icons=true&theme=chartreuse-dark)  
+
+![<img src="https://emoji.discord.st/emojis/768b108d-274f-4f44-a634-8477b16efce7.gif" width="25">
+
+&nbsp; 𝚆𝙴𝙻𝙲𝙾𝙼𝙴 𝚃𝙾 𝙼𝚈 𝙿𝚁𝙾𝙵𝙸𝙻𝙴&nbsp;
+
+<img src="https://emoji.discord.st/emojis/768b108d-274f-4f44-a634-8477b16efce7.gif" width="25">
+
+</h3>
+
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Neuton&size=25&color=30FF40&background=000000&center=true&vCenter=true&width=360&height=60&lines=Hello+World%2C+I'm+MR-ERROR+Here+🤙;𝙸𝚃'𝚜+𝙽𝙾𝚃+𝙰+𝙹𝚄𝚂𝚃+𝙽𝙰𝙼𝙴+𝙱𝚁𝙾+🥱;𝙸𝚃'𝚜+𝙰+𝙱𝚁𝙰𝙽𝙳+🔥;Respect+𝐀𝐁𝐈𝐑𝐱𝐀𝐃𝐑𝐈𝐘𝐀𝐍+🥀;Today+I+Will+Tell+You+😇;Please+Follow+My+GitHub+🙏;Thanks+My+All+Friend+🤙+🥰;Love+From+Bangladesh🇧🇩)](https://git.io/typing-svg)
+
+𝚅𝙸𝚂𝙸𝚃𝙾𝚁𝚂 𝙲𝙾𝚄𝙽𝚃
+
+<img src="https://profile-counter.glitch.me/MR-ERROR-707/count.svg" />
+
+</p>
+
+- ![Alt text](https://github.com/MRVIVEK-CODER/MRVIVEK-CODER/raw/main/Developer.gif)
+
+<img src="https://i.pinimg.com/originals/77/ca/a3/77caa32884d735d439ade45ba37feaf2.gif" min-width="1500px" max-width="1500px" width="1500px" align="middle" alt="Computador iuriCode">
+
+
+<h3><b><i>🏆 Github Statistics :</i></b></h3>
+
+<a href="https://github.com/ABIRxADRIYAN"><img title="trophy" src="https://github-profile-trophy.vercel.app/?username=MR-ERROR-707&theme=monokai"></a>
+
+
+![MR-ERROR-707 GitHub stats](https://github-readme-stats.vercel.app/api?username=Adriyan404&show_icons=true&theme=chartreuse-dark)  
+
+![MR-ERROR-404 GitHub Streak](https://github-readme-streak-stats.herokuapp.com/?user=Adriyan404&theme=radical)
 
 <img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
  
-- 😏 𝐍𝐀𝐌𝐄:- PICCI-𝐀𝐁𝐈𝐑𝐱𝐀𝐃𝐑𝐈𝐘𝐀𝐍
+- 😏 𝐍𝐀𝐌𝐄:- MR ERROR
  
 <img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
  
-- 🤨 𝐇𝐎𝐁𝐁𝐘 :- 𝗣𝗥𝗢𝗚𝗥𝗔𝗠𝗠𝗜𝗡𝗚
+- 🤨 𝐇𝐎𝐁𝐁𝐘 :- BIKE RIDDING
  
 <img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
  
-- 📕 𝐄𝐃𝐔𝐂𝐀𝐓𝐈𝐎𝐍:- 𝐎𝐍𝐋𝐘 𝐌𝐄😁
+- 📕 𝐄𝐃𝐔𝐂𝐀𝐓𝐈𝐎𝐍:- PRIVET
  
 <img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
  
-- ❤ 𝐋𝐎𝐕𝐄𝐑:- 𝐀𝐌𝐌𝐎
+- ❤ 𝐋𝐎𝐕𝐄𝐑:- TERMUX
+ GitHub Streak](https://github-readme-streak-stats.herokuapp.com/?user=Adriyan404&theme=radical)
+
+<img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
+ 
+- 😏 𝐍𝐀𝐌𝐄:- MR ERROR
  
 <img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
  
-- 👉 𝐈𝐍𝐒𝐋𝐈𝐑𝐀𝐓𝐈𝐎𝐍:- 𝐌𝐘𝐒𝐄𝐋𝐅
+- 🤨 𝐇𝐎𝐁𝐁𝐘 :- BIKE RIDDING
  
 <img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
  
-- 🤲🏻 𝐑𝐄𝐋𝐈𝐆𝐈𝐎𝐍:- 𝐈𝐒𝐋𝐀𝐌
+- 📕 𝐄𝐃𝐔𝐂𝐀𝐓𝐈𝐎𝐍:- PRIVET
  
 <img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
  
-- 📱𝐅𝐀𝐂𝐄𝐁𝐎𝐎𝐊:- 𝐀𝐁𝐈𝐑𝐱𝐀𝐃𝐑𝐈𝐘𝐀𝐍
+- ❤ 𝐋𝐎𝐕𝐄𝐑:- TERMUX
+ GitHub Streak](https://github-readme-streak-stats.herokuapp.com/?user=Adriyan404&theme=radical)
+
+<img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
+ 
+- 😏 𝐍𝐀𝐌𝐄:- MR ERROR
  
 <img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
  
-- 📱𝐅𝐀𝐂𝐄𝐁𝐎𝐎𝐊 𝐏𝐀𝐆𝐄:- 𝐀𝐁𝐈𝐑𝐱𝐀𝐃𝐑𝐈𝐘𝐀𝐍
+- 🤨 𝐇𝐎𝐁𝐁𝐘 :- BIKE RIDDING
  
 <img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
  
-- 💻𝐆𝐈𝐓𝐇𝐔𝐁:- [ABIRxADRIYAN](https://github.com/ABIRxADRIYAN/)
+- 📕 𝐄𝐃𝐔𝐂𝐀𝐓𝐈𝐎𝐍:- PRIVET
+ 
+<img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
+ 
+- ❤ 𝐋𝐎𝐕𝐄𝐑:- TERMUX
+ 
+<img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
+ 
+- 👉 𝐈𝐍𝐒𝐋𝐈𝐑𝐀𝐓𝐈𝐎𝐍:- MYSELF
+ 
+<img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
+ 
+- 🤲🏻 𝐑𝐄𝐋𝐈𝐆𝐈𝐎𝐍:- ISLAM
+ 
+<img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
+ 
+- 📱𝐅𝐀𝐂𝐄𝐁𝐎𝐎𝐊:- MR ERROR
+ 
+<img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
+ 
+- 📱𝐅𝐀𝐂𝐄𝐁𝐎𝐎𝐊 𝐏𝐀𝐆𝐄:- MR ERROR
+ 
+<img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
+ 
+- 💻𝐆𝐈𝐓𝐇𝐔𝐁:- [MR-ERROR-707](https://github.com/MR-ERROR-707/)
  
 <img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
  
