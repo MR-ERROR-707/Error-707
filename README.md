@@ -57,7 +57,7 @@
 <a href="https://github.com/ABIRxADRIYAN"><img title="trophy" src="https://github-profile-trophy.vercel.app/?username=MR-ERROR-707&theme=monokai"></a>
 
 
-![MR-ERROR-707 GitHub stats](https://github-readme-stats.vercel.app/api?username=Adriyan404&show_icons=true&theme=chartreuse-dark)  
+![MR-ERROR-707 GitHub stats](https://github-readme-stats.vercel.app/api?username=MR-ERROR-707&show_icons=true&theme=chartreuse-dark)  
 
 ![<img src="https://emoji.discord.st/emojis/768b108d-274f-4f44-a634-8477b16efce7.gif" width="25">
 
@@ -85,46 +85,9 @@
 <a href="https://github.com/ABIRxADRIYAN"><img title="trophy" src="https://github-profile-trophy.vercel.app/?username=MR-ERROR-707&theme=monokai"></a>
 
 
-![MR-ERROR-707 GitHub stats](https://github-readme-stats.vercel.app/api?username=Adriyan404&show_icons=true&theme=chartreuse-dark)  
+![MR-ERROR-707 GitHub stats](https://github-readme-stats.vercel.app/api?username=MR-ERROR-707&show_icons=true&theme=
 
-![MR-ERROR-404 GitHub Streak](https://github-readme-streak-stats.herokuapp.com/?user=Adriyan404&theme=radical)
 
-<img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
- 
-- 😏 𝐍𝐀𝐌𝐄:- MR ERROR
- 
-<img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
- 
-- 🤨 𝐇𝐎𝐁𝐁𝐘 :- BIKE RIDDING
- 
-<img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
- 
-- 📕 𝐄𝐃𝐔𝐂𝐀𝐓𝐈𝐎𝐍:- PRIVET
- 
-<img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
- 
-- ❤ 𝐋𝐎𝐕𝐄𝐑:- TERMUX
- GitHub Streak](https://github-readme-streak-stats.herokuapp.com/?user=Adriyan404&theme=radical)
-
-<img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
- 
-- 😏 𝐍𝐀𝐌𝐄:- MR ERROR
- 
-<img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
- 
-- 🤨 𝐇𝐎𝐁𝐁𝐘 :- BIKE RIDDING
- 
-<img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
- 
-- 📕 𝐄𝐃𝐔𝐂𝐀𝐓𝐈𝐎𝐍:- PRIVET
- 
-<img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
- 
-- ❤ 𝐋𝐎𝐕𝐄𝐑:- TERMUX
- GitHub Streak](https://github-readme-streak-stats.herokuapp.com/?user=Adriyan404&theme=radical)
-
-<img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
- 
 - 😏 𝐍𝐀𝐌𝐄:- MR ERROR
  
 <img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
